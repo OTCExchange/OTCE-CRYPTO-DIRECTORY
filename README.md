@@ -7,5 +7,5 @@ smart decisions, not costly ones. Whether looking for a good crypto service prov
 
 Please take the time to look over our categories / list(s) and if you see a service, site or key person that is NOT listed, please join and add it yourself. 
 
-![Alt text](![Alt text](https://github.com/OTCExchange/OTCE-CRYPTO-DIRECTORY/blob/master/screenshot.jpg?raw=true "Crypto Directory Screenshot")
+![Alt text](https://github.com/OTCExchange/OTCE-CRYPTO-DIRECTORY/blob/master/screenshot.jpg?raw=true "Crypto Directory Screenshot")
 
