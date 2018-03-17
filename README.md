@@ -5,5 +5,7 @@ Over the past several years, public interest in cryptocurrencies has increased d
 We understand how hard it is to find the right service provider for your company. When you are on a budget, you need to make 
 smart decisions, not costly ones. Whether looking for a good crypto service provider, developer, legal counsel, consultant or an adviser; it is imperative to make the right choice the first time. Https://otcexchange.biz
 
+Please take the time to look over our categories / list(s) and if you see a service, site or key person that is NOT listed, please join and add it yourself. 
+
 
 
